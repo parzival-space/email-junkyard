@@ -6,7 +6,7 @@
 
 **Subject:**         Hi
 
-> Good day.
-> My Name is Sgt Sarah Ritterhouse from the U.S Army.
+> Good day.  
+> My Name is Sgt Sarah Ritterhouse from the U.S Army.  
 > I have something very important to discuss with you.Thanks
 
